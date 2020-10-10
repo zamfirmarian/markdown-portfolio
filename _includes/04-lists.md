@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+* Philadelphia Experiment
+* Montauk Project
+  * Music of time
+  * Encounter in the Pleiades
